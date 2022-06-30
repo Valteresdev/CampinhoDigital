@@ -6,6 +6,7 @@ Frango assado,frito,cozido etc..
 
 
 ## Uma Curiosidade:
-Ir no Maracanã (Estágio) lotado.
+Ir no Maracanã (Estádio) lotado.
+
 
 
